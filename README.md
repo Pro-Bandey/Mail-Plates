@@ -8,7 +8,7 @@ Huge selection of the best free email templates you will ever find. All template
 
 ![Free email Templates](https://colorlib.com/wp/wp-content/uploads/sites/2/email-templates.jpg)
 
-For more email templates like this one [please see this list](https://colorlib.com/wp/responsive-html-email-templates/). 
+For more premium and all email templates like this one [please see this list](https://colorlib.com/wp/responsive-html-email-templates/). 
 
 # License
 
